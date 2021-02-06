@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Looking for a software engineer to bring innovation and communication to your team? 
+Looking for a software engineer to bring passion and innovation to your team? 
 Reach out to me at zacmmcca@gmail.com.
 
 <!--
